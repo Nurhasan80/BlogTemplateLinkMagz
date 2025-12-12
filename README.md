@@ -1,2 +1,2 @@
-# BlogTemplateLinkMagz2025
+# BlogTemplateLinkMagz
 Templat Blog Premium
